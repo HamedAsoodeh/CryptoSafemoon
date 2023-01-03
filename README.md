@@ -1,6 +1,6 @@
 
+![SqZwGM8N_400x400](https://user-images.githubusercontent.com/92183756/210418660-3f814f90-40ab-4a43-bc1f-2ddd0e3f0cf1.jpg)
 
-![enter image description here](https://pbs.twimg.com/profile_banners/1370324164700119042/1633200973/600x200)
 # `Basic information`
 From **South Khorasan - Birjand**.
 
